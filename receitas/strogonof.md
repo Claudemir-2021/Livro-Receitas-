@@ -12,7 +12,7 @@
 - 1/3 copo de mostarda
 - 1 copo de cogumelos
 - 1 copo de creme de leite
-- [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
+- [batata palha](https://anamariabraga.globo.com/receita/pizza-brownie-de-brigadeiro-de-banana-e-brigadeiro-gourmet/) a gosto
 
 
 
